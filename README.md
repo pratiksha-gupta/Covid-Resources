@@ -1,1 +1,1 @@
-# Covid-Resources India
+# Covid Resources India
